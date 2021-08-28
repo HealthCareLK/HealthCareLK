@@ -1,0 +1,1 @@
+HealthCare.LK (Pvt) Ltd is a registered company in Sri Lanka under the Companies Act 08 in 2003 and has obtained registration number as “PV00217725” which is the prime software product solutions provider in all HealthCare IT needs in Sri Lanka. It consists of a group of professionals from different backgrounds in health as well in the IT sector.
